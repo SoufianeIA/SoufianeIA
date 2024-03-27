@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SoufianeIA
+- 👀 I’m interested in IA
+- 🌱 I’m currently learning and working in the IA sector
+- 💞️ I’m looking to collaborate on all IA/Automation projects
+- 📫 How to reach me : soufiane.ceb@gmail.com
+- 😄 Pronouns: he/him
